@@ -5,4 +5,4 @@
 - 📫 How to reach me ahmad.shayan.khanyt@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Tech Enthusiast: I love programming and web development, and I enjoy creating new projects that challenge my skills and I play Football!
-
+- 🌐 Languages: English, German and Urdu. I cant write Urdu only speak.
